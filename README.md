@@ -31,7 +31,7 @@
 
 ###
 
-<img align="right" height="140" src="https://i.imgflip.com/65efzo.gif"  />
+
 
 ###
 
